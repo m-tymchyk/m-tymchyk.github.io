@@ -1,1 +1,0 @@
-# m-tymchyk.github.io
